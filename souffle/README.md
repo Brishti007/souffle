@@ -1,0 +1,2 @@
+# souffle
+If cooking was an art form (and some would argue it is), then a soufflé would be the equivalent of a Picasso. Every soufflé is an asymmetrical, one-of-a-kind dish. This billowy creation—a hallmark of French culinary tradition—can be served as a sweet dessert with chocolate or berries, or a savory meal with gruyère cheese, vegetables, or meat.
